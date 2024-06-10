@@ -1,6 +1,6 @@
 # Metaverse Domains: The Next Bitcoin in the Digital Frontier?
 
-![Metaverse Domains - Next Bitcoin](medium-shot-man-wearing-vr-glasses_23-2149126949.jpg)
+ ![Metaverse Domains - Next Bitcoin](3d-cryptocurrency-rendering-design_23-2149074557.jpg)
 
 ## "Metaverse Domains: The Next Bitcoin in the Digital Frontier?"
 
